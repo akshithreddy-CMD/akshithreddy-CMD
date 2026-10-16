@@ -73,7 +73,6 @@ I'm currently developing my skills and preparing to build projects that demonstr
 
 ⭐ Thanks for visiting my profile!
 
-**Feel free to connect with me. Let's learn and build together!** 🚀
 ---
 
 ⭐ Thanks for visiting my profile!
